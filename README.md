@@ -1,0 +1,4 @@
+- 👋 Hi, My name is ihab
+- 👀 I’m interested in programming video games
+- 🌱 I’m currently learning Hardware in college and going to learn software in 3 years
+- 📫 How to reach me: You can reach me through my email. Email: khameesiyaihab@gmail.com 
